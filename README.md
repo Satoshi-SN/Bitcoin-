@@ -48,7 +48,7 @@ In the quiet of memory's attic, where stardust settles on forgotten trunks, youn
 
 ### **I. The Masquerade**
 
-He dons Nakamoto's cloak, a celestial masquerade. Jennifer, his childhood friend, ties stardust knots—a necklace of memories, quivering constellations. And there it is—the oversized white button-up, passed down from Grandpa. More than fabric, it's a cosmic diploma, woven with love and wisdom.
+He dons Nakamoto's cloak, a celestial masquerade. Jennifer, his sister, ties stardust knots—a necklace of memories, quivering constellations. And there it is—the oversized white button-up, passed down from Grandpa. More than fabric, it's a cosmic diploma, woven with love and wisdom.
 
 ### **II. Family Bonds**
 
@@ -56,7 +56,7 @@ Hal Finney's constellation—third cousins linked across epochs. Shared great-gr
 
 ### **III. The White Paper's Abstract**
 
-Anthony reads aloud, quarks of knowledge dancing in the classroom's gravity. The white paper lies before him, its abstract echoing through the ages. Jennifer's eyes twin galaxies, absorbing Nakamoto's legacy. Abstract becomes reality—a fellowship of minds spanning dimensions.
+Anthony reads aloud, quarks of knowledge dancing in the classroom's gravity. The white paper lies before him, its abstract echoing through the ages. Jennifer's eyes twin galaxies, absorbing her little brother Nakamoto's legacy. Abstract becomes reality—a fellowship of minds spanning dimensions.
 
 ### **IV. Cosmic Graduation**
 
